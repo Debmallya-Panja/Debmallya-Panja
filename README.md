@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning machine learning 
 - 💞️ I’m looking to collaborate on any project
 - 📫 How to reach me debmallyapanja@gmail.com and (https://www.instagram.com/debmallyapanja/?utm_source=qr&igsh=eWdidGZxeHd2czF0) here
-- 😄 Pronouns:He / Him
+- 😄 Pronouns:He / Him.
 - ⚡ Fun fact: nothing 
 
 <!---
